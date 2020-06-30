@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Memorias a ras de calle
 
-I'm glad you are here. I plan to talk about ...
+Pensamientos y sentires de una libreta urbana
